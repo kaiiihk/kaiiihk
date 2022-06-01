@@ -1,4 +1,4 @@
 - 👋 Hi, I'm @kaiiihk
 - 👀 I'm interested in programming
 - 🌱 I'm learning to make a program.
-- 📫 How to reach me... kaik.goncalves@escola.pr.gov.br
+- 📫 How to reach me, email me: kaik.goncalves@escola.pr.gov.br
